@@ -9,7 +9,7 @@ keywords: 新加坡拉萨尔艺术学院毕业证, LASALLE Diploma, 新加坡艺
 
 在亚太地区的艺术教育版图中，**新加坡拉萨尔艺术学院（LASALLE College of the Arts）**无疑是一颗璀璨的明珠。对于广大艺术留学生而言，获得一张**新加坡拉萨尔艺术学院毕业证（LASALLE Diploma / Degree）**不仅代表着多年设计与艺术心血的结晶，更是通往国际艺术舞台与跨国创意企业的“敲门砖”。
 
-![新加坡拉萨尔艺术学院毕业证毕业证样本及学位证文凭样本模版(LASALLE College of the Arts Diploma/Certificate of Degree)](lasalle -diploma.jpg)
+![新加坡拉萨尔艺术学院毕业证及学位证文凭样本模版(LASALLE College of the Arts Diploma/Certificate of Degree)](lasalle-diploma.jpg)
 
 然而，面对当前复杂的国际就业形势与学历认证政策，许多同学和家长对 LASALLE 毕业证的真实含金量、国内教育部的认证流程，以及文凭背后的学术架构仍存在诸多疑问。本文将多维度、全方位地为您深挖拉萨尔艺术学院文凭的核心价值。
 
